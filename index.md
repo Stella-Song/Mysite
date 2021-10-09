@@ -1,3 +1,2 @@
-## Hello world! Welcome to **Song Wanxing's Blog**
 
 I'm just a little kid now, but I will change the world sooner...
